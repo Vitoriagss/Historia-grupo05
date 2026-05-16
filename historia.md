@@ -1,1 +1,3 @@
 Era uma vez um gato manco...
+
+Ele vagava perdido pelas ruas escuras em busca de um lugar onde conseguisse se recuperar e alcançar seus sonhos de vingança há muito perdidos.
